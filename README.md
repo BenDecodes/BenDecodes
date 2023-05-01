@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BenDecodes
+- 👀 I’m interested in Artificial Intelligence and its applications
+- 🌱 I’m currently learning 
+- 📫 How to reach me : benshane20@gmail.com
